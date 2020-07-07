@@ -1,2 +1,2 @@
-# xbox-gamae-pass
+# PC-MASTER
 venta de juegos, noticias y juegos gratis 
